@@ -88,7 +88,7 @@ improve!
 
 ### Cameron
 
-![Understatement](https://media3.giphy.com/media/As0sopKG8lot2/giphy.gif?cid=790b761103a62b9618bf9abb6067d740f3d47c44930ac6b9&rid=giphy.gif&ct=g)
+![Understatement](https://miro.medium.com/max/1400/1*dQyfOpFWmSxrmdOcQgW6OQ.jpeg)
 
 ### Samantha
 
