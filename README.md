@@ -88,7 +88,8 @@ improve!
 
 ### Cameron
 
-![Understatement](https://gfycat.com/sparklingpointedfennecfox-avengers-age-of-ultron)
+![Understatement](https://thumbs.gfycat.com/SparklingPointedFennecfox-mobile.gif)
+
 ### Samantha
 
 
