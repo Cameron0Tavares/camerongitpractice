@@ -88,7 +88,7 @@ improve!
 
 ### Cameron
 
-![Understatement](https://thumbs.gfycat.com/SparklingPointedFennecfox-mobile.gif)
+![Understatement](https://media3.giphy.com/media/As0sopKG8lot2/giphy.gif?cid=790b761103a62b9618bf9abb6067d740f3d47c44930ac6b9&rid=giphy.gif&ct=g)
 
 ### Samantha
 
