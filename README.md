@@ -88,8 +88,7 @@ improve!
 
 ### Cameron
 
-there are words here now
-
+![Understatement](https://gfycat.com/sparklingpointedfennecfox-avengers-age-of-ultron)
 ### Samantha
 
 
